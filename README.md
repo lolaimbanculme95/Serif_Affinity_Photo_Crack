@@ -1,0 +1,1 @@
+# Serif_Affinity_Photo_Crack
